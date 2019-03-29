@@ -5,7 +5,7 @@
 
 浏览器 Google Chrome 首选。
 
-[http://xiaokaihexiaoting.info:520/](http://xiaokaihexiaoting.info:520/)
+
 
 
 ### 👀 预览
